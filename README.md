@@ -190,12 +190,7 @@ City authorities must come out with revised policies to protect the general publ
 📬 Contact
 If you'd like to connect, collaborate, or discuss this project further:
 
-📧 **Email:** mathiasofosu2@gmail.com
+📧 **Email:** badhondattaofficial@gmail.com
 
-💼 **LinkedIn:** [Mathias Ofosu](https://linkedin.com/in/mathias-ofosu)
-
-🧠 **GitHub Profile:** [Mathias Ofosu](https://github.com/MKOfosu)
-
-🌟**Twitter/X:** [Mathias Ofosu](https://x.com/MKOfosu)
 
 Feel free to reach out. I’m always open to data-driven conversations on how to unlock actionable insights from your data.
